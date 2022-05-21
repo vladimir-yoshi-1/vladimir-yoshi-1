@@ -1,5 +1,5 @@
 - 👋 Yo I’m @vladimir-yoshi
-- Join my discord with the link below
+- Join my discord with the link --->
 -https://discord.gg/frE9BZnuQw
 
 
